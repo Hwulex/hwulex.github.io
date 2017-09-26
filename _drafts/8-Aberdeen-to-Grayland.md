@@ -38,6 +38,8 @@ The rest of the evening was pretty standard. Walk to the beach, take some photos
 
 Dinner was boxed squash soup with a full two serve packet of rice in it. So much food. Oh and that second half of carrot cake. Yum.
 
+The rain started around 10pm but was fairly light. When I got up to pee an hour later it was all sorts of raining, so of the hardest rain I've seen in a long time. Again, definitely made the right call getting a proper shelter for the night.
+
 ### Roadside Randoms
  - Velvet black high-heeled shoe
  - A couch at a bus stop
@@ -48,6 +50,7 @@ Apparently possums are a thing here I've learned so it was one I saw the other d
 ### Notable wildlife
  - Pelicans (or some kinda similar looking bird) at Westport
 
+### Best RV Name
 
- 
-
+- Intruder
+- Lander
