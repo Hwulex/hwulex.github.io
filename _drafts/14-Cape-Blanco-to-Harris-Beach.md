@@ -20,7 +20,7 @@ Cupasoup then ginger chicken and rice from Fred's. Yogurt, Chocolate milk. Bed.
 
 Wind died completely. Strange for night time I thought. Not sorry mind. 
 
-Seemed to pitch up next to a snorer. Even with wind gone, might still need those ear plugs. 
+Seemed to pitch up next to a snorer. Even with wind gone, might still need those ear plugs. Diggers still going at 22:30. 
 
 California tomorrow!
 
@@ -34,4 +34,6 @@ California tomorrow!
 Seahawks, dozens of them
 
 ### RV Names
-- Lots, see Keep
+
+- Encounter
+- Endeavour
